@@ -1,0 +1,2 @@
+# Mental-Health-in-Higher-Education-A-Crisis-Beneath-the-Surface.
+In recent years, universities across the globe have witnessed a silent but deeply concerning trend: the deterioration of student mental health. While academic performance, credit load, and graduation rates often dominate institutional metrics, the mental and emotional well-being of students is an equally vital, yet often neglected component.
